@@ -1,1 +1,1 @@
-Be *kind*. Stay Curious.
+Be *kind*.
